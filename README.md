@@ -10,5 +10,5 @@ I made it for programming3 course
 
 > contact:
 
-`telegram` : [M7md Kerdi](https://t.me/M0Ordy)
+`telegram` : [M7md Kerdi](https://t.me/Moha_krdi)
 `instagram` : [m07a_k2](https://www.instagram.com/m07a_k2/)
